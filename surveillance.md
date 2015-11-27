@@ -1,0 +1,5 @@
+#Sur•veil•lance: Perspective in the Niqab Debate
+
+It seems absurd that in Canada where the number of niqab-wearing women represent such a tiny fraction of the population they should command such a large portion of the debate in a federal election; yet, in the 2015 federal election, one of the longest in Canadian history, they did. Perhaps the most prevalent political cartoon seen in moderate, Canadian media expressed this incredulity at the situation with an image of niqab-clad person atop an iceberg with the various political issues facing Canada sectioning off the iceberg under the waterline (see fig.1). The message seems clear: the niqab debate distracts from other issues by capitalizing on the fears of "average" Canadian citizen. 
+
+Two factors need to considerHowever, as Anna Korteweg and Gökçe Yurdakul point out in their book _The Headscarf Debates_, the debates around Muslim headscarves that have occurred around the world function as important articulations or narratives of national belonging. 
