@@ -1,0 +1,3 @@
+research bits
+
+The question of who “sees” whom is focal in Arab society. Space is a highly structured relationship in which open (undefined) spaces are rare. When Gilsenan distinguishes “being seen” from “being visible” he is making a meaningful statement about Arab culture, which considers “seeing” a marked activity and cross-sex “seeing” as closely linked to respect and privacy. Because seeing is important it must be regulated.
