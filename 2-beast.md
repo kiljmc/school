@@ -1,5 +1,6 @@
 part2
 
+
 becomes even more evident in Hirschfeld’s report from Bern: "The ladies of Bern have been reproached for sequestering their faces from the profane gaze of men by means of veils, just as the fair sex does in Turkey. As far as I have seen, the veil, made usually of white muslin [Flohr], is worn only in the summer. The advantages that a woman may gain against the sun, air and flying pests would be recommendation enough, were it not that the desire to please adds yet another one. Everyone knows that a pretty face, of which Bern has so many, looks even more charming under muslin; half-concealed beauty emerges so charmingly, like the dawn rays of a day in May through a light mist; and the agreeable impatience to see more is worth more than an unobstructed gaze that offers immediate satisfaction."
 
 For, as Hobbes concedes, fear is at the heart of the Common-wealth portrayed in Leviathan, the fear that motivates citizens to obey the law and to submit to the will of the sovereign. “Sovereignty makes us afraid, and fear makes the sovereign,” writes Derrida in the voice of Hobbes (  Derrida Beast and Sovereign
@@ -29,6 +30,8 @@ Germans.” 85
 Muslim in western imagination all above
 
 The cook at first resists, but, threatened with the loss of his own head, returns on his knees with the black, grinning head of the dead (and eaten) Saracen,in a scene that triumphantly stages the horror of the head,its racial difference, and its inhuman, devilish nature. Narrative attention zeroes in on the black face and black beard of the detached head, set off against white teeth that are bared by widely grinning lips (3211–13). Richard’s re- sponse (“What devil is this?” 3214) is extravagant laughter. He had not known before, he exclaims, that Saracen flesh was this delicious: now his army would never lack for food, since they were able, in any assault, to slay Saracens and take their flesh to boil, roast, or bake, gnawing the flesh to the bones; never again would he and his men fear hunger in their campaign of conquest in the Levant (3216–3226) geraldine heng
+
+
 
 Accordingly, when Hobbes founds sovereignty by means of a reference to the state in which "man is a wolf to men," homo hominis lupus, in the word "wolf " (lupus) we ought to hear an echo of the wargus and the caput lupinem of the laws of Edward the Confessor: at issue is not simply fera bestia and natural life but rather a zone of indistinction between the human and the animal, a werewolf, a man who is transformed into a wolf and a wolf who is transformed into a man -- in other words, a bandit, a homo sacer. Far from being a prejuridical condition that is indifferent to the law of the city, the Hobbesian state of nature is the exception and the threshold that constitutes and dwells within it. It is not so much a war of all against all as, more precisely, a condition in which everyone is bare life and a homo sacer for everyone else, and in which everyone is thus wargus, gerit caput lupinum. And this lupization of man and humanization of the wolf is at every moment possible in the dissolutio civitatis inaugurated by the state of exception. Agamben
 

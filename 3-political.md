@@ -59,3 +59,5 @@ If the public enemy and the private enemy cannot be rigorously discriminated, th
 at every point when this border is threatened, fragile, porous, contestable (we thus designate so many possibilities that 'our time' is accentuating and accelerating in countless ways) the Schmittian discourse collapses. It is against the threat of this ruin that his discourse takes form. [POF 88 l 107]
 Elsewhere Derrida asks: “Why does Schmitt take no account of the fact that the police and spy network ‐ precisely the police qua spy network [. ..| ‐ points to what. precisely in the service ofthe State. ruins in advance and
 fit)»: wit/JIM the possibility of the political, the distinction betWeen public and private?‘ [POP 144i 166]
+
+When the reference is to women's dress, the pertinent meaning combines sanctity, reserve, and privacy.

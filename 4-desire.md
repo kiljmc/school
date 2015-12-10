@@ -39,7 +39,7 @@ the brutal act upon the victim  retroactively legitimizes the act: I set out to 
  Zizek
 
 
-Conclusion : 
+Conclusion : Should the conclusion contain stuff form VIsion?
 Derrida is here (1:105) focused on a very different sort of beast: he is interested in the fact that the sovereignty implied in all declarations of the rights of man, even when extended to include the rights of women, children, and animals, still relies on an ipse dixit, the “he himself” of voiced authority, the ipsissimus upon which all claims of superlative sovereignty rest. - Beast and Sovereign summary
 
 we understand that the manipulation of domestic minorities is a formative moment in the self-construction of national majorities. Knowing who and what a religious-racial minority is, is an essential stage in knowing who and what a national majority is, and is not: the stable, leg- ible categories of the one fiction enabling and stabilizing the categories of the other. - geraldine heng
