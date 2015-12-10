@@ -25,3 +25,21 @@ Female headgear serves a dual func- tion: on the one hand it is meant to hide he
 
 
 The appearance of this engraving prompted a keen discussion of the figure of the ‘covered woman’ (tapada), her head shrouded in a veil which left one eye free, to striking effect. Contrary to what we might expect, this particular form of veiling was not seen as a token of modesty but instead was criticized as seductive, mysterious and rebellious.
+
+elevation to spiritual ideal is therefore to be conceived of as a strictly secondary phenomenon: it is a narcissistic projection whose function is to render her traumatic dimension invisible. zizek
+
+Furthermore violence is never carried out, brought to its conclusion; it always remains suspended, as the endless repeating of interrupted gesture zizek
+
+the brutal act upon the victim  retroactively legitimizes the act: I set out to beat a woman and when, at the very point where I think I thoroughly dominate her, I notice that I am actually her slave —since she wants the beating and provoked me to deliver it— I get mad and really beat her.
+ zizek
+
+ “our official desire is that we want to sleep with the lady (consummation of sovereign absolute power); whereas in truth, there is nothing we fear more than a Lady who might yield zizek
+
+ They are as he says a cold, distanced, inhuman partner. The lady is never characterized for any of her real concrete virtues… She functions as an inhuman partner in the sense of a radical Otherness, she is simultaneously a kind of automaton, a machine which utters meaningless demands at random.. this confers on the lady her uncanny, monstrous character—the Lady as the Other which is not our fellow creature” 
+ Zizek
+
+
+Conclusion : 
+Derrida is here (1:105) focused on a very different sort of beast: he is interested in the fact that the sovereignty implied in all declarations of the rights of man, even when extended to include the rights of women, children, and animals, still relies on an ipse dixit, the “he himself” of voiced authority, the ipsissimus upon which all claims of superlative sovereignty rest. - Beast and Sovereign summary
+
+we understand that the manipulation of domestic minorities is a formative moment in the self-construction of national majorities. Knowing who and what a religious-racial minority is, is an essential stage in knowing who and what a national majority is, and is not: the stable, leg- ible categories of the one fiction enabling and stabilizing the categories of the other. - geraldine heng
