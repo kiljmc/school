@@ -22,5 +22,13 @@ Because Schmitt's friend-enemy grouping materializes in the public realm, it lea
 
 Derrida points to the secret police as an example of the collapse but in the veil we see a similar conflict. El Guindi argues that privacy as a concept varies between the West and the East. Dress in general but veiling in particular are "privacy's visual metaphor" ("The Sacred in the Veil: 'Hijab'"). She writes, "Arab privacy does not connote the personal,” the “secret” or the individuated space.” It concerns two core spheres – women and the family. For both, privacy is sacred and carefully guarded. For women it is both a right and an exclusive privilege, and is reflected in dress, space, architecture and proxemic behavior" ("The Sacred in the Veil: 'Hijab'"). This conflict of connotations plays out in the Western media often and featured prominently in the niqab debate in Canada. The anxiety around women in the niqab centered on the idea of "what could they be hiding from us" as if Canada was in the midst of the Algerian Revolution. In the West, a public face has emerged as a public right when in the public space. Yet, as El Guindi points out the veil, the veil permeates the public space in the Arab world. In her text, Meyda Yegenoglu takes Schmitt's fear in a more general direction when she argues that the external enemy becomes the internal enemy in Europe; Europe is in the process of defending the public secular sphere from an encroaching Islam that seeks to turn the public into a twin of the private religious sphere. In this sense, the niqab represents a visual assault on the public's secular image. 
 
+To quell this fear of a spectral enemy, Schmitt turns to the sovereign decision. The sovereign is the ultimate authority who decides between the enemy and friend: "Schmitt argues that there must be an ultimate instance in the state—“the sovereign”—who decides when there is a state of exception. This sovereign decision should not be possible to question; its power should be unconditional and indivisible" (Hagglund 180). In the Canadian debate, the election became a debate on who to hand that authority to.
+
+
+
+
+
+
+
 
  [^2]:Gilles Pontecorvo's film _The Battle of Algiers_ wonderfully captures this sense of discomfort while it chronicles the actions of women during the revolution. 
